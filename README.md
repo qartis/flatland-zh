@@ -1,4 +1,4 @@
-Flatland (神 奇 的 二 维 国)
+Flatland (神奇的二维国)
 
 The text of this book was downloaded from http://matrix67.com/data/flatland.html
 
